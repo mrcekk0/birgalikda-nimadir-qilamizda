@@ -1,0 +1,1 @@
+# birgalikda-nimadir-qilamizda
